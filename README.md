@@ -1,0 +1,2 @@
+# premium-amber-polish-001-baltic-amber-rough-cutting-and
+Stop losing track of which rough amber pieces are gem-grade and which are better suited for carving. The Baltic Amber Rough Cutting and Polish Grade Log gives you a structured system to document every step — from raw stone to final polish — so you never mix up your inventory again.  This Notion template transforms your amber polishing workflow by p
